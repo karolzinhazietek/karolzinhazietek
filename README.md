@@ -13,5 +13,7 @@ meu nome é karol zietek
  -karoline.motta@escola.pr.gov.br
  
  -instagram: @karol.zietek
-
  
+ 🫀🐴
+ 
+![](https://media.tenor.com/yiWokjPcqKYAAAAM/tangled-horse.gif)
