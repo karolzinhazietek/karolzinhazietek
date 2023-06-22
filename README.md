@@ -13,4 +13,5 @@ meu nome é karol zietek
  -karoline.motta@escola.pr.gov.br
  
  -instagram: @karol.zietek
-![](https://tenor.com/pt-BR/view/la-merveille-des-merveilles-running-horses-gallop-beautiful-horse-gif-17031952)
+
+ 
